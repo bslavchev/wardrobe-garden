@@ -8,13 +8,17 @@ Very shortly afterwards, half of the wardrobe of my student room had been conver
 |:--:| 
 | *Basil in Kratky method jars* |
 
-![image](https://user-images.githubusercontent.com/962953/219065539-384e4eca-b6f9-4d10-82c9-e35dfde41d8f.png)
+---
 
-*Min in a small Deep Water Culture system*
+| ![image](https://user-images.githubusercontent.com/962953/219065539-384e4eca-b6f9-4d10-82c9-e35dfde41d8f.png) | 
+|:--:| 
+| *Mint in a small Deep Water Culture system* |
 
-![image](https://user-images.githubusercontent.com/962953/219065652-8c16c9c9-1970-43b4-8349-e96335de945f.png)
+---
 
-*The roots of the Kratky method basil*
+| ![image](https://user-images.githubusercontent.com/962953/219065652-8c16c9c9-1970-43b4-8349-e96335de945f.png) | 
+|:--:| 
+| *The roots of the Kratky method basil* |
 
 Strangely, I don't have any photos of my coriander, but sucessfully growing that was my pride. I grew all my plants from cuttings from Albert Heijn plants, but the coriander plants had incredibly weak stems (I am presuming due to growing under insufficient light, leading to leggy stems), so usually the cutting would collapse and die. After maybe a dozen failed attempts, I finally found a way to stabilize one enough that it could root and strengthen its stem at least a little.
 
